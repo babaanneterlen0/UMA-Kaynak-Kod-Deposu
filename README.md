@@ -1,1 +1,0 @@
-# UMA-Kaynak-Kod-Deposu
